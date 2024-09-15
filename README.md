@@ -1,1 +1,0 @@
-"lo sin grupo"
